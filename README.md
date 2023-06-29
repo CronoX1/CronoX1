@@ -1,1 +1,1 @@
-Just a normal student
+Just a normal cybersecurity student
